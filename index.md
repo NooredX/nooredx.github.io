@@ -6,12 +6,12 @@ Premium European clothing, footwear & everyday essentials for young adults.
 - Personal, responsive support  
 - 2-year product warranty
 
-👉 Shop now: https://nooredx.ee  
+👉 Shop now: [https://nooredx.ee](https://nooredx.ee)  
 🎉 Use code **SOCIAL10** for 10% off
 
 ## Collections
 - Activewear • Swimwear • Everyday Basics • Footwear
 
 ## Follow
-- Instagram: https://instagram.com/nooredx
-- TikTok: https://www.tiktok.com/@nooredx
+- Instagram: [https://instagram.com/nooredx](https://instagram.com/nooredx)
+- TikTok: [https://www.tiktok.com/@nooredx](https://www.tiktok.com/@nooredx)
